@@ -1,4 +1,4 @@
-# afraz.m.khan-gmail.com
+# afraz.m.khan@gmail.com
 
 BS Computer Scientist
 
